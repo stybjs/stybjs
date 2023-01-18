@@ -1,3 +1,3 @@
 ### Brandon Seaton 👋
 
-Hello! I apologize for the inconvenience. I will be offline for a while. 
+Hello! I apologize for the inconvenience. I am unable to reply your message, please understand.
